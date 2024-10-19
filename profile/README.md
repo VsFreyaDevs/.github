@@ -1,6 +1,12 @@
-joer isn't here btw.
+HOLY FUCK LOIS
 
-anyway hi, charles is here
+
+
+
+
+
+
+
 
 <!--
 
